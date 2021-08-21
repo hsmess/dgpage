@@ -1,6 +1,7 @@
 # Costs and add-ons
 
 ## Base cost of the event: £20.00
+Please note: you will be charged £1 + 3.49% fees by DiscGolfScene 
 
 When registering on Disc Golf Scene, you will be asked to add the following extras should you want them:
 
