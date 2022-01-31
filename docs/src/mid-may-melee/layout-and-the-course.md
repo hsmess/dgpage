@@ -1,11 +1,18 @@
-[comment]: <> (# Layout and the Course)
+# Layout and the Course
 
-[comment]: <> (## Layout for both rounds: Modified Blue Layout)
+## Layout for first 3 rounds: Modified Blue Layout
 
-[comment]: <> (The exact layout will be published in the next few days, but most of the holes will be the traditional "blue" layout at Cotswold View, with some changes including adding one temp hole in order to facilitate changes to the "ride" holes &#40;9, 10, 11&#41; to help with speed of play. Additionally, a couple of other holes' White tees will be played.)
+Hole 1: new "field" hole as with the previous tournament at Cotswold Vew
 
-[comment]: <> (##)
+Holes 2-9: Blue tees 1-8 on regular layout
 
-# Layout and Courses
+Hole 9 Blue from the regular layout will be skipped entirely
 
-## DETAILS COMING SOON
+Hole 10: Regular Blue
+
+Hole 11 Blue: Short "par 3" position just through the gap past the white tee to allow speed of play for hole 10
+
+Holes 12-18: Regular Blue
+
+##
+
