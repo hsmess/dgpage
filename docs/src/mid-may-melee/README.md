@@ -34,6 +34,19 @@ Many players will be [camping and staying on-site](https://cotswoldview.campmana
 - At least one other player’s pack item
 - More players pack items TBC depending on sponsorships
 
+
+[Costs and Extras](costs-and-extras.md)
+
+[Divisions and Prizes](divisions-and-prizes.md)
+
+[Layout](layout-and-the-course.md)
+
+[Schedule & Structure](schedule.md)
+
+
+
+
+
 **Tournament Structure:**
 
 # Friday 13th
@@ -83,6 +96,7 @@ Approximately 2.30pm - **Trophy Presentation**
 - This is optional, you can leave after round 3 if you like
 
 **The old shed cafe will be open on Sunday but we have no specific lunch planned - in case people want to head off early**
+
 
 ### Location
 
