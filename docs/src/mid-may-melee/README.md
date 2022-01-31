@@ -1,19 +1,13 @@
 # Mid May Melee at Cotswold View
 
-<aside>
 🗓️ **Event :** 14th and 15th May, 2022
 
-</aside>
 
-<aside>
 💻 **Registration :** 1st February, 2022 February 1, 2022 8:00 AM
 
-</aside>
 
-<aside>
-💰 **Fees :** £45 per player, including 90£20 green fees, Players Pack disc RRP £20 and 3 PDGA sanctioned rounds, as well as prize-pool
+💰 **Fees :** £45 per player, including £20 green fees, Players Pack disc RRP £20 and 3 PDGA sanctioned rounds, as well as prize-pool
 
-</aside>
 
 Hello and Welcome to the Mid May Melee at Cotswold View.
 
@@ -23,10 +17,8 @@ If you are a [**Full BDGA Member**](https://bdga.org.uk/join-the-bdga/) you will
 
 Many players will be [camping and staying on-site](https://cotswoldview.campmanager.com/20156/Check-Availability/), and you can get 20% off your pitch or pod using code **MIDMAYMELEE2022** for any of the Friday, Saturday or Sunday nights
 
-<aside>
 🥳 **EXCLUSIVE USE**: The course will be closed to campers and the public for the duration of the tournament (Saturday/Sunday)
 
-</aside>
 
 **Prizes**:
 
