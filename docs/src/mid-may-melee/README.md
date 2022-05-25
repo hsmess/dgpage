@@ -1,4 +1,4 @@
-# Mid May Melee at Cotswold View
+# Mid May Melee at Cotswold View presented by MVP Disc Sports
 
 🗓️ **Event :** 14th and 15th May, 2022
 
@@ -26,13 +26,13 @@ Many players will be [camping and staying on-site](https://cotswoldview.campmana
 - As this is as AM ONLY event, we will be paying out in merchandise vouchers - amounts TBC
 - There will be trophy certificates for the top 3 in each division
 - There will be Cotswold View themed merchandise prizes to division winners for every division with 5 or more players
-- There may be *more* prizes than this, depending on Sponsorships
+- MVP will be adding a basket and a bag to the prize-pool!
 
 **Players packs:**
 
 - One triple foil stamped disc with artwork by Katy Sluman RRP £20.00
 - At least one other player’s pack item
-- More players pack items TBC depending on sponsorships
+- MVP goodies to fill out the player's pack
 
 
 [Costs and Extras](costs-and-extras.md)
